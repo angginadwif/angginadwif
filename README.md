@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything
 - 📫 How to reach me: ... [[Linkedin](https://www.linkedin.com/in/anggina-dwi/ )] [[Medium](https://angginadwi.medium.com/ )]
 - 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: ... I Love Watching Movies, I Love Reading Novel, and I Like Dancing
+- ⚡ Fun fact: ... I Love Watching Movies, I Love Listening Music, and I Like Dancing
 
